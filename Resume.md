@@ -8,21 +8,18 @@ wpooh@mines.edu | [www.linkedin.com/in/Winnie-the-Pooh](https://en.wikipedia.org
 ## **Education**
 
 **School of Life**
-*Hundred Acre Wood, Blissful Forest*
-*Dates: 1924 - Present*
+*Hundred Acre Wood, Blissful Forest* | *Dates: 1924 - Present*
 - Education in friendship, kindness, the pursuit of happiness, and honey.
 
 ## **Professional Experience**
 **Adventurer and Problem Solver**
-*Hundred Acre Wood, Blissful Forest*
-*Dates: 1924 - Present*
+*Hundred Acre Wood, Blissful Forest* | *Dates: 1924 - Present*
 
 - Successfully navigated numerous expeditions to find honey pots, demonstrating resilience and determination.
 - Applied problem-solving skills in creative ways to overcome challenges, such as rescuing friends or retrieving a stuck balloon.
 
 **Master of Friendship**
-*Hundred Acre Wood, Blissful Forest*
-*Dates: 1924 - Present*
+*Hundred Acre Wood, Blissful Forest* | *Dates: 1924 - Present*
 
 - Cultivated and maintained strong relationships with diverse personalities, fostering a sense of unity and camaraderie.
 - Actively participated in group activities, promoting teamwork and emotional support.
